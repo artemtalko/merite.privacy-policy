@@ -1,1 +1,0 @@
-# merite.privacy-policy
